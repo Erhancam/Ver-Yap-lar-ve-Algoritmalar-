@@ -1,0 +1,1 @@
+# Ver-Yap-lar-ve-Algoritmalar-
